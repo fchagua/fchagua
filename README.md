@@ -5,7 +5,7 @@ Software Engineer
 -----------------
 
 *   🌍  I'm based in St. Louis, Missouri
-*   ✉️  You can contact me at [fchagua@purdue.edu](mailto:fchagua@purdue.edu)
+*   ✉️  You can contact me at [franciscochagua226@gmail.com](mailto:franciscochagua226@gmail.com)
 
 ### Skills 
 <p align="left">
